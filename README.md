@@ -81,4 +81,6 @@ Remember, knowledge is power—always stay informed and prioritize your safety w
   
 <a href="http://d562b5e3jfxlzjfffjv6wr3wtxrzlbm2zkr35yp6h7nivqsyfxzqtwid.onion"><img src="/images/prior.webp" alt="DarkDock Register" style="max-width: 100%;"></a>
 
-Update:  26 June 2025
+
+
+Update:  04.07.2025 04:20:45
